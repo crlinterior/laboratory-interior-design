@@ -1,2 +1,5 @@
 # laboratory-interior-design
-CRL Interior &amp; Fit-Out Private limited services are a one-stop solution for all your laboratory design and construction projects. 
+CRL Interior & Fit-Out Private limited services are a one-stop solution for all your<a href="https://crlinterior.com/laboratory/"> laboratory design</a> and construction projects. Our lab design architects, lab planners, and lab construction engineers have successfully delivered more than 50 projects.Whether your project is a brand-new research center or remodel of an existing lab, we have an experienced team available to make your vision come to life.
+
+At every stage of your laboratory design and construction project, CRL design architects, lab design consultants, lab planners, and engineers are available to help you get the best out of your investment.Our turnkey laboratory services commitment is a fully managed, risk-mitigated lab construction project.We'll take care of everything from lab planning to lab commissioning. You'll get a fully Functional and safe lab, delivered on time, and within the budget. Talk to our lab design consultants to work out the best lab planning and commission options tailored to meet your business dynamics, project scope, and duration.
+
